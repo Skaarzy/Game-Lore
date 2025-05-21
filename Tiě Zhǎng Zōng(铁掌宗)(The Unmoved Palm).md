@@ -1,0 +1,6 @@
+Tiě Zhǎng Zōng his presence alone can silence a battlefield. Known as The Iron Hand, he is said to have once crushed a mountain in half with single upward strike and halted a charging war elephant using nothing but his palm. But strength is not what defines him restraint does. He teaches that true mastery lies not in using power, but in knowing when not to. He once stood in a duel for three hours without throwing a single strike, waiting until his opponent surrendered from exhaustion and fear. Tiě Zhǎng Zōng speaks little, and his commands are rarely repeated. His students both fear and revere him, knowing that under his watchful eye, weakness is stripped away, and strength true, humble strength is forged. Though he never wields a weapon, he is considered one of the most dangerous warriors alive. Rumors claim that even blades shatter upon contact with his skin, and those foolish enough to test him find themselves broken before he even raise his hand at them.His ultimate technique is a so called Iron Forged Body its where he digests and consumes all his stored energy(food and protein and fat) into power and his body becomes harder than a diamond 
+
+![[Tiě Zhǎng Zōng before ultimate.jpg]]
+![[Tiě Zhǎng Zōng before ultimated.jpg]]
+![[Tiě Zhǎng Zōng after ultimate.jpg]]
+!![[Tiě Zhǎng Zōng normal form.jpg]]
