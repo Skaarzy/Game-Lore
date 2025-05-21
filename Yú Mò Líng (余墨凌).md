@@ -1,0 +1,3 @@
+Yú Mò Líng (余墨凌) (Mother of Mc)
+
+Yú Mò Líng is the daughter of the Heavenly Demon, the leader of the Demonic Sect. Despite her lineage, Mò Líng is portrayed as a martial genius who surpassed the physical limits of a woman. She was chosen as the representative of the Demonic Sect during the final showdown of the Great War, where she faced Zhen Xiu Ren in a one-on-one battle. The battle lasted seven days and nights, ending without a clear victor. Mò Líng's abilities and her role in the war highlight her significant impact on the martial world. ​[](https://absolute-dominion.fandom.com/wiki/Yu_Seol-Ha?utm_source=chatgpt.com)

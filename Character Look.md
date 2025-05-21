@@ -1,0 +1,1 @@
+The UI of the Character Edit will be similar to black desert online stuff.The difference will be that the player if the player wants to change character age , height , muscle  it will change the stats of the character which will appear on the same screen(he player will be able to disable this)
